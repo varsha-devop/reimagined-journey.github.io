@@ -3,7 +3,7 @@ Hi!
 
 Breif Introduction about my work and skills.
 
-Thanks
+Thanks,
 Varsha
 
 
